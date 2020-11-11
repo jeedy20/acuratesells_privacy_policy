@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-EBLI built the _Reading Adventures with Booker 1: EBLI Island_ app as a Commercial app. This SERVICE is provided by EBLI and is intended for use as is.
+EBLI built the _Reading Adventures with Booker 1: EBLI Island_, _Reading Adventures with Booker 2: EBLI Space_, and _Sight Words Made Easy_ apps as Commercial apps. This SERVICE is provided by EBLI and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
